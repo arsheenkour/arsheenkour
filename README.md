@@ -4,8 +4,11 @@
 
 
 -📫I study at LPU(https://lpu.com)
+
 -🔭I’m a Tech ethusiast
+
 -😄I'm passionate individual towards achieving goals.
+
 -🌱I have desire to gain quality experience and eager to contibute my creativity.
 
 ### Follow me
